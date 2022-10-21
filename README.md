@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ssharvari Shet
+- 👋 Hi, I’m Sharvari Shet
 - 👀 I’m interested in Coding, Electronics, Fashion 
 - 🌱 I’m currently learning Electronics and Communication
 
